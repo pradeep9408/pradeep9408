@@ -1,1 +1,0 @@
-Hello this is my first training session. P99SOFT
